@@ -1,0 +1,1 @@
+mai multe you tube despre lazy predict
